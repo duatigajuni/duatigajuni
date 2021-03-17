@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @duatigajuni
+- 👋 Hi, I’m **[duatigajuni](https://duatigajuni.my.id/)**
 - 👀 I’m interested in Writer on Blog
 - 🌱 I’m currently learning Writing Code
 - 📫 How to reach me : duatigajuni404@gmail.com
